@@ -1,1 +1,1 @@
-Here, I plan on putting on the qualification rounds problems.
+Here, I plan on putting only the qualification rounds problems.
